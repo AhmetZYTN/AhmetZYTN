@@ -1,2 +1,3 @@
 # AhmetZYTN
 Seni "EN İYİ SEN" yapar😎!!
+Evrende bir atom parçası kadar küçükken kendi gezegenimizde ne kadar büyük olduğunu konuşuyoruz...
